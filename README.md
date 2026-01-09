@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-ROLE960225MVZMRL03
+ROLE960225MVZMRL03
